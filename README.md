@@ -1,0 +1,1 @@
+# nodirbek_card
